@@ -4,6 +4,6 @@ y aqui unas imaganes del gestor de tareas
 imagen 2
 ![WhatsApp Image 2024-12-19 at 12 43 40 AM](https://github.com/user-attachments/assets/9d0d66c2-f767-4a26-944e-8e73ace6e6c4)
 imagen 3
-![WhatsApp Image 2024-12-19 at 12 43 40 AM](https://github.com/user-attachments/assets/5c4ed835-0ea3-4d9b-a897-6dd506a2da60)
+![WhatsApp Image 2024-12-19 at 12 47 17 AM](https://github.com/user-attachments/assets/10b59c22-3ca7-4744-97fb-43de7294b307)
 imagen 4
-![WhatsApp Image 2024-12-19 at 12 43 40 AM](https://github.com/user-attachments/assets/6e968bbd-763a-4ed4-8916-f085bfcd56f5)
+![WhatsApp Image 2024-12-19 at 12 47 31 AM](https://github.com/user-attachments/assets/2df4d570-3c93-4057-9458-f10652e2d2b9)

@@ -1,0 +1,2 @@
+Carlos,tarea,taller,Media,Pendiente,12-12-12,13-12-12
+Carlos,Proyecto,Taller de Programacion,Alta,Pendiente,12-08-24,16-12-24
